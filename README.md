@@ -1,2 +1,2 @@
-# For-david
+# For-bigay
 sana kaya mo pa
